@@ -57,4 +57,4 @@ Feel free to connect with me:
 
 ## 🌐 Know More About Me
 
-For more about my projects, experiences, and skills, visit [my page](https://ebrahim.page).
+For more about my projects, experiences, and skills, visit [ebrahim.page](https://ebrahim.page).
